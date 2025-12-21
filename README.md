@@ -26,7 +26,7 @@ $${\color{#865c55} OFFICIALㅤSOCIALS}$$ <br/>
 <p align="center"> 
 
 <p align="center"> 
-<a href="https://discord.com">discord</a>‎ 　　‎﹒　　 <a href="https://twitter.com/BUGLABORATORIES">twitter</a>‎ 　　‎﹒　　 <a href="https://buglaboratories.atabook.org/">atabook</a>‎‎
+<a href="https://discord.gg/46NXTwCPYn">discord</a>‎ 　　‎﹒　　 <a href="https://twitter.com/BUGLABORATORIES">twitter</a>‎ 　　‎﹒　　 <a href="https://buglaboratories.atabook.org/">atabook</a>‎‎
 </p>
 <p align="center"> 
     ‎ 
