@@ -1,21 +1,11 @@
-<p align="center"> 
-    ‎ 
-</p>
-<p align="center"> 
-<img src="https://pixels.crd.co/assets/images/gallery60/74055b43.gif?v=29416114" />
-</p>
-<p align="center"> 
-    ‎ 
-</p>
-<p align="center">
-$${\color{#3e9a56} "ㅤmissㅤbuggieㅤwillmakesureㅤthatㅤyouㅤwillㅤbeㅤhappyㅤhereㅤforeverㅤandㅤeverㅤ!ㅤ"}$$ <br/>
-    
-<p align="center">
-<img width="400" height="400" alt="Logo by @.m1r3a on Discord!" src="https://files.catbox.moe/yatmp1.webp" />
- </p>
-<p align="center"> 
+<div align="center">
 
-$${\color{#74c379} " ㅤandㅤrememberㅤ,ㅤyouㅤareㅤonlyㅤprofitㅤtoㅤusㅤandㅤnothingㅤelseㅤ,ㅤdearㅤsubjectㅤ.ㅤ"}$$ <br/>
+![04c63a61](https://pixels.crd.co/assets/images/gallery60/74055b43.gif?v=29416114)
+ 　 [CLICK HERE 2 DONATE (VIA ROBUX ONLY ATM) AND SUPPORT THIS PROJECT !](https://www.roblox.com/games/13247712344/leafs-donation-place#!/store)
+
+  ![](https://komarev.com/ghpvc/?username=devimccallion&label=PEOPLE+THAT+LOVE+MISS+BUGGIE+!&color=9ACD32) 
+  
+![42eb86696e33353e6b9d105aa492cb86](https://files.catbox.moe/yatmp1.webp)
   </a>
 </p>
 
@@ -27,11 +17,11 @@ $${\color{#74c379} " ㅤandㅤrememberㅤ,ㅤyouㅤareㅤonlyㅤprofitㅤtoㅤus
     ‎ 
 </p>
 <p align="center"> 
-$${\color{#865c55} OFFICIALㅤSOCIALS}$$ <br/>
+$${\color{#9ACD32} OFFICIAL󠀠󠀠󠀠SOCIALS󠀠󠀠󠀠!}$$ <br/>
 <p align="center"> 
 
 <p align="center"> 
-<a href="https://discord.gg/46NXTwCPYn">discord</a>‎ 　　‎﹒　　 <a href="https://twitter.com/BUGLABORATORIES">twitter</a>‎ 　　‎﹒　　 <a href="https://buglaboratories.atabook.org/">atabook</a>‎‎
+<a href="https://discord.gg/46NXTwCPYn">DISCORD SERVER</a>‎ 　　‎𖢥　　 <a href="https://twitter.com/BUGLABORATORIES">TWITTER</a>‎ 　　‎𖢥　　 <a href="https://buglaboratories.atabook.org/">ATABOOK</a>‎‎
 </p>
 <p align="center"> 
     ‎ 
