@@ -21,7 +21,7 @@ $${\color{#9ACD32} OFFICIAL󠀠󠀠󠀠SOCIALS󠀠󠀠󠀠!}$$ <br/>
 <p align="center"> 
 
 <p align="center"> 
-<a href="https://discord.gg/K6PNMq9qdD">DISCORD SERVER</a>‎ 　　‎𖢥　　 <a href="https://youtube.com/@buglaboratories">YOUTUBE</a>‎ 　　‎𖢥　　 <a href="https://buglaboratories.atabook.org/">ATABOOK</a>‎‎
+<a href="https://discord.gg/">DISCORD SERVER</a>‎ 　　‎𖢥　　 <a href="https://youtube.com/@buglaboratories">YOUTUBE</a>‎ 　　‎𖢥　　 <a href="https://buglaboratories.atabook.org/">ATABOOK</a>‎‎
 </p>
 <p align="center"> 
     ‎ 
